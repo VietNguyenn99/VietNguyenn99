@@ -20,3 +20,5 @@ In my free time, I like to experiment with new data analysis techniques and cont
 
 ---
 [![](https://visitcount.itsvg.in/api?id=VietNguyenn99&icon=0&color=0)](https://visitcount.itsvg.in)
+
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fpgdhuyendonduong.edu.vn%2Flisa-blackpink-la-ai%2F&psig=AOvVaw0kzP3X-24QjFNKj09Htj6Q&ust=1679750086464000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCIj2-e7S9P0CFQAAAAAdAAAAABAE)
